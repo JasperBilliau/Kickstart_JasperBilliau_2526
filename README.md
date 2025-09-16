@@ -2,5 +2,5 @@
 
 
 
-tekst tekst !!!!!!!!!
+tekst tekst tekst tekst tekst tekst tekst tekst 
 
